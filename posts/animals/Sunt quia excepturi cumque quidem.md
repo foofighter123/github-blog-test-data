@@ -1,3 +1,0 @@
-Ut qui omnis aspernatur nihil laborum omnis consequatur sapiente similique. Sit doloribus eum nostrum. Et sapiente et debitis dolores dignissimos incidunt ullam amet. Dolor error sit aut doloribus adipisci perferendis iure.
- Provident aliquid molestiae reiciendis pariatur consectetur omnis. Sit voluptatem id tempora voluptas aut rerum quos. Odio eveniet iusto rerum numquam.
- Id laborum neque eum nam voluptatem sint ut. In dolore amet. Incidunt ut inventore veritatis libero. Totam dicta alias ut aspernatur beatae et eveniet praesentium. Eaque omnis officiis ducimus. Totam est unde quos consequatur amet id libero.

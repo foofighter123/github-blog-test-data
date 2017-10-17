@@ -1,3 +1,0 @@
-Quam voluptatibus dolore aspernatur. Sapiente repudiandae et omnis. Voluptas voluptate omnis adipisci fuga nulla illum consequatur qui.
- Harum nostrum voluptate culpa eum. Quod voluptatem sit totam dolor et vero doloremque. Sed natus voluptatibus reiciendis.
- Et iste nemo. Aut ab quidem maxime minima saepe. Quo nisi quia sequi voluptatum consectetur voluptatem. A rerum voluptates vel id quos sunt dolorem explicabo sint.

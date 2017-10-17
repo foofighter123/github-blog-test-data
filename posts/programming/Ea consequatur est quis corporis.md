@@ -1,1 +1,0 @@
-Architecto fugiat id nulla occaecati ullam. Consequatur blanditiis dolorum. Sed voluptates earum. Dolor consequuntur autem.
