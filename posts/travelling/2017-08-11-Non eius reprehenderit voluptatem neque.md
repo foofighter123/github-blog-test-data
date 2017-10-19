@@ -1,3 +1,0 @@
-Itaque dicta non voluptas inventore. Quos cum in ut sunt eos. Quis id voluptatum ipsa id. Modi quam laudantium et. Ducimus voluptas repellendus. Dolores autem pariatur facere.
- Eaque voluptatibus nobis facere aut quo id est. Libero laudantium officiis amet aut et ad sit optio mollitia. Sed et ea. Qui facere dolor consequatur id aut quod.
- Earum pariatur doloremque beatae fugit corporis laborum. Dolor qui corrupti enim cum. Rerum qui consequatur dicta officiis.
